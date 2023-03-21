@@ -1,4 +1,4 @@
-
+![](https://github.com/NostalgiaHacks/NostalgiaHacks/blob/main/image.jpg)
 ### Hi there 👋 Welcome to my page
 
 - 🔭 I’m currently working on small projects untill im able to make smt bigger
