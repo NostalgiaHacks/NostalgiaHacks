@@ -10,3 +10,16 @@
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I like cats!
 
+### IMPORTANT 
+ 1- this account is only for public hacks that are uploaded on the internet at anytime 
+ 
+ 2- i don't own the cheats/hacks neither created them 
+ 
+ 3- I'm not responsible for the harm of your pc/laptop if happend 
+ 
+ 4- by downloading anything from my page you agree to these terms
+ 
+### Enjoy your stay in my account!
+ 
+ 
+
